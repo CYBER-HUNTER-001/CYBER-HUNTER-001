@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+Passionate about Tech, Ethical Hacking & Freelancing.
+සිංහලෙන් දැනුම බෙදාගන්න while mastering cybersecurity, coding & AI tools.
+Learning daily. Sharing always
